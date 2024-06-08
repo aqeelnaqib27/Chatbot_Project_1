@@ -11,27 +11,44 @@ Website Link: (https://chocolate-cakes-kijjl6g.gamma.site/)
 
 Location: Street - Jalan Skibidi 4/20, Seksyen 69, 40100 Shah Alam State/province/area - Selangor Zip code - 42600
 
-Phone Number: +60 19-439 5991
+Phone Number: +60 12-3456-789
 
-Cake flavours: Chocolate (Available) Vanilla (Unavailable) Strawberry (Unavailable) Blueberry (Unavailable)
+Top 10 Hottest Video Games of 2024 :
+Final Fantasy VII Rebirth: A sequel to the remake of the classic RPG, expected in Winter 2024 for PlayStation 5.
+mobilesyrup.com
+Final Fantasy VII Rebirth video game
+Black Myth: Wukong: An action-adventure game based on the Chinese legend of the Monkey King, expected in mid-2024 for PC and next-gen consoles.
+www.rockpapershotgun.com
+Black Myth: Wukong video game
+Star Wars Outlaws: An open-world space action game set in the Star Wars universe, expected for PC and next-gen consoles in late 2024.
+news.xbox.com
+Star Wars Outlaws video game
+Hades 2: A sequel to the critically-acclaimed roguelike dungeon crawler, in early access on Steam since 2023.
+steampowered.com
+Hades 2 video game
+Senuas Saga: Hellblade 2: The sequel to the psychological horror action-adventure game, expected for PC and next-gen consoles in late 2024.
+store.steampowered.com
+Senuas Saga: Hellblade 2 video game
+Dragon's Dogma 2: The sequel to the open-world action RPG, expected for PC and next-gen consoles in Summer 2024.
+store.steampowered.com
+Tekken 8: The next installment in the long-running fighting game series, expected for PlayStation 5, Xbox Series X/S, and PC in late 2024.
+dotesports.com
+Tekken 8 video game
+Stellar Blade: A character action game from the creators of Bayonetta, expected for PlayStation 5 in mid-2024.
+www.playstation.com
+Stellar Blade video game
+Prince of Persia: The Lost Crown: A remake of the 2003 action-adventure game, expected for PC and next-gen consoles in 2024 (release date TBA).
+www.nintendo.com
+Prince of Persia: The Lost Crown video game
+Another Crab's Treasure: A sequel to the critically-acclaimed roguelike platformer "A Crab's Treasure," expected for Nintendo Switch in 2024 (release date TBA).
 
-Icing flavours: Chocolate (Available) Vanilla (UnAvailable) Mint (Available) Strawberry (Available) Blueberry (Available)
+Game genres: Fantas (Available)y, Action (Available), Adventure (Available), Puzzle (Available), Role-Playing-Game (Available), Simulation (Available), Strategy (Available), Sports (Available)
 
-Sizes & Pricing: 
-Round cake 6 inch diameter - 30RM (40RM with icing) Round cake 8 inch diameter - 50RM (62RM with icing) Round cake 10 inch diameter - 80RM (95RM with icing) Round cake 12 inch diameter - 115RM (132RM with icing) Round cake 14 inch diameter - 155RM (175RM with icing) Round cake 16 inch diameter - 200RM (220RM with icing) Square cake 6x6 inch size - 40RM (52RM with icing) Square cake 8x8 inch size - 70RM (88RM with icing) Square cake 10x10 inch size - 110RM (140RM with icing) Square cake 12x12 inch size - 155RM (195RM with icing) Rectangle cake 6x8 inch size - 50RM (65RM with icing) Rectangle cake 8x12 inch size - 100RM (125RM with icing) Rectangle cake 12x16 inch size - 200RM (240RM with icing) Height is 4 inch for all cakes
+Payment plans and Pricing :
 
-Ordering process: Specify cake tier number (accept 1 to 3) For each cake, specify which cake and icing flavour If cake tier is more than 1, lower cake must have bigger size than upper ones Cake tier cannot have different shapes
+5-Games [1 Week Free Trial (Free), 1 Month (30RM),6 Month (160RM),1 Year (300RM)]
+Unlimited Games [1 Month (100RM), 6 Month (550RM), 1 Year (1000RM)]
 
-Ingredients: All-purpose flour, granulated sugar, baking powder, baking soda, eggs, milk, vegetable oil, vanilla extract. (Made from scratch, all locally sourced ingredients)
-
-Programs: No cake workshop or decoration classes No loyalty program (will soon be implemented) No refunds and returns
-
-Promotions: [Chocolate Spree] Chocolate cake 20% off (End at 29th March)
+Promotions: [Weekly Specials] Free-to-play Games on Rotation
 
 Tax: 10% Government tax
-
-Icing: Icing is applied around each cake (except bottom part)
-
-Others: No vegan/free gluten options Order can be made via phone/chatbot (or coming to place) Deposit is 80% of the total price Do not accept any form of cash Tasting appointment can just come to the place directly Doesn't accept order issues, if any issue on orders, tell them to contact customer service via phone number.
-
-Other products: Candle (2RM for each candle) Lighter for candle (3RM) Plastic plates (2RM per 12 plates) Plastic utensils (spoon & fork) 1RM per tool Plastic knife to cut cake (2.5RM)
