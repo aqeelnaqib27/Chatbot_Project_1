@@ -3,9 +3,9 @@ A Test Project
 
 Shop information
 
-Baker: Mr. AQEEL NAQIB (Exquisite 3-star Michelin star bakery chef)
+Owner: Mr. AQEEL NAQIB (Critically-Acclaimed Multi-award winning game developer)
 
-Time open: Everyday from 9am to 6pm (Except wednesday)
+Time open: Everyday from 12pm to 12am (Except Friday)
 
 Website Link: (https://chocolate-cakes-kijjl6g.gamma.site/)
 
