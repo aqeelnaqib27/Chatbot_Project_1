@@ -3,7 +3,7 @@ A Test Project
 
 Shop information
 
-Baker: Mr. ALEX KOH (Exquisite 3-star Michelin star bakery chef)
+Baker: Mr. AQEEL NAQIB (Exquisite 3-star Michelin star bakery chef)
 
 Time open: Everyday from 9am to 6pm (Except wednesday)
 
