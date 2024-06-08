@@ -1,13 +1,10 @@
-# Chatbot_Project_1
-A Test Project 
-
 Shop information
 
 Owner: Mr. AQEEL NAQIB (Critically-Acclaimed Multi-award winning game developer)
 
 Time open: Everyday from 12pm to 12am (Except Friday)
 
-Website Link: (https://chocolate-cakes-kijjl6g.gamma.site/)
+Website Link: (https://cloudplay-l6gxsep.gamma.site/)
 
 Location: Street - Jalan Skibidi 4/20, Seksyen 69, 40100 Shah Alam State/province/area - Selangor Zip code - 42600
 
