@@ -9,7 +9,7 @@ Time open: Everyday from 9am to 6pm (Except wednesday)
 
 Website Link: (https://chocolate-cakes-kijjl6g.gamma.site/)
 
-Location: Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam State/province/area - Selangor Zip code - 42600
+Location: Street - Jalan Skibidi 4/20, Seksyen 69, 40100 Shah Alam State/province/area - Selangor Zip code - 42600
 
 Phone Number: +60 19-439 5991
 
